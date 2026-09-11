@@ -1,7 +1,10 @@
 ![](https://merlecult.com/ghpvc/?username=merlecult)
-<img width="400" height="126" alt="image" src="https://github.com/user-attachments/assets/3d0f1d78-21d2-4495-8865-4e8100153db3" />
+<img width="400" height="88" alt="image" src="https://github.com/user-attachments/assets/460459a8-0148-4e12-a031-72b125526e1f" />
+
 
 
 *ok check out my strawpage. https://merlecult.straw.page .*
+<img width="250" height="252" alt="image" src="https://github.com/user-attachments/assets/49d86892-65bc-4d0e-bdc2-e84ca35ef40d" />
 
-<img width="400" height="66" alt="tumblr_bc9320124e938939b974391c323c5e18_9494d215_400" src="https://github.com/user-attachments/assets/ba16059f-d1b9-4f39-8f94-b729a78fc98b" />
+
+<img width="400" height="141" alt="image" src="https://github.com/user-attachments/assets/fc1b7f03-8e4e-4643-a342-0b3fd995f4dc" />
